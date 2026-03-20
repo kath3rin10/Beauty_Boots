@@ -1,2 +1,2 @@
-# Beauty_Boots
+# Beauty Boots
 Belleza que inspira confianza 
